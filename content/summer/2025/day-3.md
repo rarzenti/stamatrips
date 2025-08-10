@@ -1,0 +1,10 @@
+---
+title: "OCNJ 2025 – Day 3"
+date: "2025-08-01"
+location: "Ocean City, New Jersey"
+coverImage: "/images/summer/2025/shootn.jpeg"
+---
+
+## Friday, August 1st
+
+Woke up around 6:30AM to get ready for the bike ride. It was a windy morning and a bit nippy. Luke and Paul were getting the bikes ready so they could carry the kids on them. With the wind, Luke essentially had a parachute strapped to the back of his bike. He powered through and we made it to the coffee shop. It rained a bit so we went under the pavilion. Marsha was rambling on about how she wished she had a zip up hoodie. Troy was chilling like the absolute legend he is. Even with the rain, the boardwalk coffee was relaxing and enjoyable as always. We stuck around for 20-30 minutes then began the ride back. Joan wanted to stop in one of the shops to snag a hat and I joined her. She got a hat and pink sweatshirt for Perry. I was able to find Marsha a zip up hoodie as well. We biked back, had breakfast and chilled for a few hours. Luke mentioned they went clay shooting for Nick’s bachelor party a few months ago so we opted to do that. We went to Cedar Creek sporting clays about 1 hour away. I found out Julia used to work in this area. The people there were super nice! Bad day to be a sporting clay (unless Marsha was shooting). I think everyone had a good time there. I haven’t shot in a long time so it was fun to do that again! Made me miss South Carolina a bit… between the driving and shooting we were only gone for about 4 hours. We got back and found Mikey had arrived! We did some chillin and napping. Luke ended up spinning Perry around a bit too much and she threw up on him. Luke and Paul then went to go get the Pizzas. We were playing dominos while this was going on and tried to stack dominos on their horizontal edges. Helen, Manny and Mikey were also playing this game. I was the victor with a stack of 7. After dinner, we were playing with ChatGPT some more and took it easy. All and all, this was a super relaxing day. Looking forward to the rest of the week which should bring some beautiful weather with it!
